@@ -1,1 +1,1 @@
-![](https://media.discordapp.net/attachments/1198612270087946260/1277340389682184304/image.png?ex=66cccf70&is=66cb7df0&hm=56795ad0dba0aa3624cc124e22ee489506de4d9bbe8062d60ceb46f3060f2452&=&format=webp&quality=lossless&width=228&height=128)
+![](https://files.catbox.moe/wxfd6v.webp)
